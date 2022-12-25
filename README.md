@@ -1,1 +1,1 @@
-# FUGUFX.github.io
+# [FUGUFX.github.io](https://fugufx.github.io/)
